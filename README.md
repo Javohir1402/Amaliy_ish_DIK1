@@ -1,0 +1,1 @@
+# Amaliy_ish_DIK1
